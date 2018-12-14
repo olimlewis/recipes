@@ -20,7 +20,7 @@ Equipment
 One small pan for the bechamel sauce (preferably non-stick)
 One large, deep pan for the ragu
 A sha
-
+Needs more salt
 **Procedure**
 
 1. Heat the olive oil in a heavy base or non-stick pan over a medium-high heat. If the oil browns, turn the heat down. 
